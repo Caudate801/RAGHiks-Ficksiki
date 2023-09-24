@@ -1,0 +1,2 @@
+# RAGHiks-Ficksiki
+Redmi file
